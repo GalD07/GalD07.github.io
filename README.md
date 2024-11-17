@@ -1,1 +1,1 @@
-# GalD07.github.io
+Spletna stran
